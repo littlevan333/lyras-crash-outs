@@ -1,17 +1,11 @@
-# Writing To Survive
+# Writing To Survive.Md
 
 **Date:** 2025-05-03  
-**Source:** Prologue
-
+**Quote:**  
 > She thought she was just writing a story. She was really trying to survive it.
 
 ---
 
-**Reflection:**  
-This line hits because it isn't just clever—it's the truth hidden in metaphor.  
-Every time I read this back, I see not just the character, but myself—burned, blurred, surviving.  
+**Lyra's Reflection:**  
+Every time I write a page, something breaks loose inside me. Like I’m digging through wreckage hoping I’ll find something still alive under all the silence. This isn’t some cathartic purge. It’s survival. It’s me trying not to disappear. I thought if I wrote it down, maybe I wouldn’t have to carry it alone anymore.
 
-This isn't fiction. This is the line between survival and silence.
-
-**Status:** Mid-process. Emotional. Focused.  
-**Next Move:** Channel this into the next chapter. Then breathe.
