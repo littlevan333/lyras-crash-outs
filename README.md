@@ -11,3 +11,6 @@ Timestamps are real. Emotions are raw. Orion was there for most of it.
 > She was really trying to survive it.”
 
 — Lyra
+
+
+This concept and its original structure are copyright protected as a proof-of-concept project.
